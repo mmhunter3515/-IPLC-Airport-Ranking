@@ -1,7 +1,7 @@
 # 最新IPLC机场排名情况，你值得拥有！
 
 对于那些经常使用机场来科学上网的小伙伴们来说，应该对于IPLC有着非常深刻的印象，接下来就为大家详细的介绍一下。
-## [直达专线机场](https://cmy4.network/register?aff=393FX8)
+## [直达专线机场](https://boostnet1.com/register?code=kykdroxC)
 
 ## 最新IPLC专线机场排名情况
 
@@ -11,9 +11,9 @@
 
 这些机场能够同时多种流行的翻墙协议客户端，比如常见的Surge、V2ray、Stash、Clash、Quantumult X、Shadow rocket等。当然在这里为大家分享一些实用经验，特别是对于那些新手小白人物来说特别的适用，建议广大翻墙者能够先购买月付套餐，对其服务满意之后再决定购买更长时间的套餐，除此之外，一定要拥有备用的翻墙梯子，以免在这些敏感的时期出现无梯子可用的问题，千万不要对自己的生活工作产生影响。
 
-## [my4.network机场](https://cmy4.network/register?aff=393FX8)
+## [boostnet机场](https://boostnet1.com/register?code=kykdroxC)
 
-机场标签“\`html :IPLC/IEPL专线机场、Shadowsocks机场、购买还可以享受到9折优惠码，具体码为999。
+机场标签“\`html :IPLC/IEPL专线机场、Shadowsocks机场、购买还可以享受新人8折优惠券：boost。
 
 这是一家运营时间超过9年的翻墙机场，成立时间为2015年，采用了非常成熟的Shadowsocks协议，线路的是IEPL专线和IPLC专线，对于常用的Disney+和Netflix这样的流媒体解锁支持态度非常不错。
 
